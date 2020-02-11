@@ -1,0 +1,1 @@
+Minhas férias, eu passei boa prte dela dormindo e fui pra praia uma vez, e também trabalhei ás vezes na loja do meu pai.
